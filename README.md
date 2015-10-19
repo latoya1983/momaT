@@ -1,0 +1,2 @@
+# momaT
+Hi %%Subscriber%%,  The most affordable business building package has been released!  Now you can have the best marketing tools in the industry to help explode your current  business. Or You can take this new profit pulling package  and make it a revenue generator for yourself!  HOSTHENPROFITS is your all-inclusive package.  Let this powerful system along with our incredible  live training and coaching take your business to a  whole other level. Click below to check out this amazing system.  http://Toyasworld.info.hostthenprofit.com  Thanks, Latoya Edmund
